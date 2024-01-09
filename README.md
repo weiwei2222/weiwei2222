@@ -6,4 +6,5 @@ Check out my homepage:
 
 🌍 Website:https://weiwei2222.github.io/weiwei/ <br/>
 💼 LinkedIn https://www.linkedin.com/in/weiwei2222/
+📫 Email: linweiwei2222@gmail.com
 
